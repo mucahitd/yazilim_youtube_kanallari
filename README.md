@@ -9,7 +9,7 @@
 7. [Çay Kahve İnsan](https://www.youtube.com/channel/UCD37i3UdHYc9MJ1MnuQ6n2Q)
 8. [Devnot TV](https://www.youtube.com/channel/UCgKcX7YBsGbdLrZQyOKMLQA)
 9. [Nedirtv](https://www.youtube.com/user/nedirtvcom)
-10.[Adem ilter](https://www.youtube.com/user/ademilter)
-11.[Selman Kahya](https://www.youtube.com/user/SirChintzy)
+10. [Adem ilter](https://www.youtube.com/user/ademilter)
+11. [Selman Kahya](https://www.youtube.com/user/SirChintzy)
 
 
